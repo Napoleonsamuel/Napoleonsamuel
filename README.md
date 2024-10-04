@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...shilling, community management, social media management 
 - 🌱 I’m currently learning ...lead marketing 
 - 💞️ I’m looking to collaborate on ...marketing or any other skills in the crypto space
-- 📫 How to reach me ...t.me/napoleonsamuel
+- 📫 How to reach me ...Telegram @napoleonsamuel
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
